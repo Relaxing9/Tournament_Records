@@ -7,11 +7,11 @@
 
 ### ![Champions](https://fgunz.net/images/tournament/1.png)
 
-TBD
+^6Ewwn^9
 
 ### ![2nd Place](https://fgunz.net/images/tournament/2.png)
 
-TBD
+submissive
 
 ### ![3rd Place](https://fgunz.net/images/tournament/3.png)
 
