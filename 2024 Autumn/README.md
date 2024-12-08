@@ -17,6 +17,10 @@ submissive
 
 Alkaiser
 
-### ![Extra Prize](https://fgunz.net/images/tournament/4.png)
+### ![Bonus Prize](https://fgunz.net/images/tournament/4.png)
 
-TBD
+tealeaves
+doko
+Faky
+
+![Wheel](https://i.imgur.com/cheOaUf.gif)
