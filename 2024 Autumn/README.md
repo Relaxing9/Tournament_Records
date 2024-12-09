@@ -23,4 +23,4 @@ tealeaves
 doko
 Faky
 
-![Wheel](https://i.imgur.com/cheOaUf.gif)
+[Bonus Prize Selection](https://i.imgur.com/cheOaUf.gifv)
