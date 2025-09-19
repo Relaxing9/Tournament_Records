@@ -1,4 +1,4 @@
-## 2025 Tournament (?v? ????)
+## 2025 Tournament (3v3 SNO)
 
 ### See the Bracket for Screenshots
 
